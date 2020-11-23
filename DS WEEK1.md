@@ -1,13 +1,4 @@
 # WEEK 1
-
-jkzhu@zju.edu.cn  朱建科
-
-11921102@zju.edu.cn  林利翔
-
-zijinxuxu@zju.edu.cn  任金伟
-
-冬学期第一周/第二周 Mid-Term (15)
-
 ***
 
 
